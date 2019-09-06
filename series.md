@@ -1,3 +1,0 @@
-Boneca Russa 
-Titãs
-Chernobyl
